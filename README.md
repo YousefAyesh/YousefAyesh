@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YousefAyesh
 - 👀 I’m interested in teaching myslef how to code
-- 🌱 I’m currently learning someone like you by adele
+- 🌱 I’m currently learning the song someone like you by adele on piano.
 - 💞️ I’m looking to collaborate on anything to give me useful expierence
 - 📫 How to reach me Email: Ayesh4002@gmail.com
 
